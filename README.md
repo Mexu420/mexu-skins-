@@ -5,7 +5,7 @@
 <!-- # also, check the skin folder of a skin if the download link doesn't automatically come with the cursor that you saw me recently use on stream/in videos. (ie: yellow cookiezi cursor with red trail as opposed to no trail). it will probably be there, if not, notify me. -->
 
 # Mexu collection
-## will be uploaded on 1k followers
+will be uploaded on 1k followers
 
 # [re:owoTuna Selyu](https://ck1t.ru/s-1552)
 ![](https://skins.osuck.net/uploads/posts/2020-08/1596468449_screenshot9247.jpg)
