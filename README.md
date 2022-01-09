@@ -4,6 +4,12 @@
 
 <!-- # also, check the skin folder of a skin if the download link doesn't automatically come with the cursor that you saw me recently use on stream/in videos. (ie: yellow cookiezi cursor with red trail as opposed to no trail). it will probably be there, if not, notify me. -->
 
+# [Mexu Shenhe](https://drive.google.com/drive/folders/1jp3CofTln26DGJdI8DzLpC3-0cVC90bS?usp=sharing)
+![](https://osu.ppy.sh/ss/17437724/5c35)
+
+# [Mexu V2](https://drive.google.com/drive/folders/1Z10UJ0eqw5XsKiLqNqKpfbQR1AzPKmqX?usp=sharing)
+![](https://osu.ppy.sh/ss/17437724/5c35)
+
 # [Mexu V1](https://drive.google.com/drive/folders/1Z10UJ0eqw5XsKiLqNqKpfbQR1AzPKmqX?usp=sharing)
 ![](https://osu.ppy.sh/ss/17437711/fdc0)
 
