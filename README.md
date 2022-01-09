@@ -7,7 +7,7 @@
 # [Mexu Shenhe](https://drive.google.com/drive/folders/1i2BJ7nOtbnEGKWFNBYkojF1QRPN7-9XL?usp=sharing)
 ![](https://osu.ppy.sh/ss/17437733/e9c5)
 
-# [Mexu V2](https://drive.google.com/drive/folders/1Z10UJ0eqw5XsKiLqNqKpfbQR1AzPKmqX?usp=sharing)
+# [Mexu V2](https://drive.google.com/drive/folders/1jp3CofTln26DGJdI8DzLpC3-0cVC90bS?usp=sharing)
 ![](https://osu.ppy.sh/ss/17437724/5c35)
 
 # [Mexu V1](https://drive.google.com/drive/folders/1Z10UJ0eqw5XsKiLqNqKpfbQR1AzPKmqX?usp=sharing)
